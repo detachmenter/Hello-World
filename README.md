@@ -8,8 +8,5 @@ I love the process  of one thing birthing from my hands and fingers.
   And I love my creation too. ~~ ^o^ ~~ .I love mana!
   
 
-Water-lying and lying is my favorite. 　
-　〃∩ ∧＿∧ 　♪
-　⊂⌒(　･ω･) 
-　　＼_っ⌒/⌒c 
-　　　　⌒/⌒
+Water-lying and lying is my favorite. 　ʕ•̀ω•́ʔ✧
+
